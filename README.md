@@ -1,5 +1,6 @@
 > Username @ANartifica
-Only using this for random shit.
+
+I'm only using this for random shit.
 And totally not a professional.
 
 That's it, I guess.
